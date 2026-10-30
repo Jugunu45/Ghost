@@ -1,3 +1,3 @@
 # Ghost
-spirit phantom 
+Spirit Phantom
 AaronOluwafemi
