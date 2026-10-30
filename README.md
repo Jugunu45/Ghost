@@ -1,2 +1,2 @@
-# Ghostamer
+# Ghost amir
 spirit phantom 
